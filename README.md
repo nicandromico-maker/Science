@@ -1,2 +1,3 @@
-# Science
-Science is about hehe
+# Science for Grade 10
+Science is about hehe updated na!!!
+
